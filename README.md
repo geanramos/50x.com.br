@@ -1,0 +1,2 @@
+# akamaihdga
+akamaihd.ga
